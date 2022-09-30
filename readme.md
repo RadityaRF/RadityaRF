@@ -9,7 +9,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1DslC1b7Wmd2rTE-67AAEmVH5Mqgr0_kO/view?usp=sharing](https://drive.google.com/file/d/1DslC1b7Wmd2rTE-67AAEmVH5Mqgr0_kO/view?usp=sharing)
 
-- ⚡ Fun fact **I think I'm very 'bossy' but is not true. I'm very humble :smiley:**
+- ⚡ Fun fact **My friends think I am very 'bossy' but is not true. I'm very humble :smiley:**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
